@@ -1,3 +1,0 @@
-"# mayadatahackathon" 
-"# mayadatahackathon" 
-"# mayadatahackathon" 
